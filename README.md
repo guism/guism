@@ -17,7 +17,7 @@
 
 
 ---------------------------------------------------------------------------
-# **Hello, I am Guilherme Serrate Maia! 👋
+# Hello, I am Guilherme Serrate Maia! 👋
 About Me**
 
     💼 Profession: Quality Assurance (QA) Analyst since 2019
