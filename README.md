@@ -7,7 +7,7 @@
 
 ## **Conecte-se Comigo**
 
-    LinkedIn
+    [Linkedin - Guilherme Serrate Maia](https://www.linkedin.com/in/guilherme-serrate-maia-772106139/ "Linkedin - Guilherme Serrate Maia")
 
 ## **Habilidades**
 
